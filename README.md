@@ -1,1 +1,1 @@
-# legend-of-seontae
+# the-story-of-seontae
